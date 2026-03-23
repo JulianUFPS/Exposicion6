@@ -1,3 +1,3 @@
 # Exposicion6
 Mi nombre es Julián Andrés Hernández Ortega.
-El día de hoy es 23/03/2026.
+El día de hoy es 23/03/2027.
